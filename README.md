@@ -1,5 +1,6 @@
 ## Hi there 👋
-## Fun fact: im lazy as hell but i can do games )
+## Fun fact: Lockk IN and I can do games )
+## Im learning every day.
 <!--
 **TIO5v5/TIO5v5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
